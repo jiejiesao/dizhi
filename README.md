@@ -1,4 +1,4 @@
-:tw-1f1ef: :tw-1f1ef: :tw-1f1f8: :tw-1f1e6: :tw-1f1fb:
+:couple:
 # 地址会不定时更新,请收藏此页面.
 www.245x.com
 www.249r.com
